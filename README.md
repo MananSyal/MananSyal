@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @MananSyal
+- 👋 Hello everyone, I’m MananSyal
