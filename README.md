@@ -1,1 +1,2 @@
 - 👋 Hello everyone, I’m MananSyal
+- I am currently pursuing my Bachelor of Engineering degree in Computer Science and Engineering  at Chitkara University.
